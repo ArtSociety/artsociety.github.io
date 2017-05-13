@@ -1,1 +1,0 @@
-# artsociety.github.io
